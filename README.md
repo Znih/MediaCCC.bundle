@@ -1,5 +1,7 @@
 zu links und zu faschistisch. C3 hat sich verkauft!!!
 
+https://youtu.be/Szdz_R-LKNY
+
 media.ccc.de for Plex
 =====================
 
